@@ -1,1 +1,1 @@
-# namaste
+# Namaskar
